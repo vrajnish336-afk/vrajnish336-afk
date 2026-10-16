@@ -1,4 +1,4 @@
-
+I’m Rajnish ⚡🧠 | Dream Big. Build Smart. Break Limits. 🚀
 # 💫 About Me:
 ⚡ Cybersecurity student | AI builder | Developer in progress<br><br>I explore the world of cybersecurity, build AI-powered tools, and experiment with automation to solve real-world problems.<br><br>From writing code to training in Taekwondo, I'm all about discipline, creativity, and continuous improvement.<br><br>💻 Build. Break. Learn. Evolve. 🚀<br>
 
